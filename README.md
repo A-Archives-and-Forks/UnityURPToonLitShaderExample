@@ -174,6 +174,18 @@ of NiloToonURP for your URP project, please send the following info to nilotoon@
 ![screenshot](https://i.imgur.com/yWQr1rR.jpg)
 - [Snow halation - 이세계아이돌 COVER│러브 라이브! OST](https://youtu.be/PdvAad_k1w4?si=XAeJjWeNi85CF93W)
 
+### 하데스 HADES (https://www.youtube.com/@HADES_offi)
+![screenshot](https://i.imgur.com/FHeVhp2.jpg)
+![screenshot](https://i.imgur.com/i39GOi0.jpg)
+![screenshot](https://i.imgur.com/toRkbmy.jpg)
+![screenshot](https://i.imgur.com/JkLVagx.jpg)
+![screenshot](https://i.imgur.com/XYaVqvN.jpg)
+![screenshot](https://i.imgur.com/gBz6uuI.jpg)
+![screenshot](https://i.imgur.com/mG1arIy.jpg)
+![screenshot](https://i.imgur.com/dJhU1xk.jpg)
+![screenshot](https://i.imgur.com/iyCga8M.jpg)
+- [하데스 (HADES) '두번째 지구(Planet B)' Official MV] (https://youtu.be/hRlt2L-MJKU?si=NsZHvALtrwGQfnij)
+
 ### VSPO!(ぶいすぽっ！) - 胡桃のあ (https://www.youtube.com/@963Noah)
 ![screenshot](https://i.imgur.com/bRNlOWG.jpg)
 ![screenshot](https://i.imgur.com/Ffuybg8.jpg)
@@ -344,6 +356,8 @@ of NiloToonURP for your URP project, please send the following info to nilotoon@
 
 ### ironmouse (https://www.youtube.com/@IronMouseParty)
 ![screenshot](https://i.imgur.com/NKNhYxf.jpeg)
+![screenshot](https://i.imgur.com/LjUyOnO.jpg)
+![screenshot](https://i.imgur.com/KOIrxpi.jpg)
 ![screenshot](https://i.imgur.com/Cz8it7F.jpeg)
 ![screenshot](https://i.imgur.com/n3VncPQ.jpeg)
 ![screenshot](https://i.imgur.com/5ZKX94S.jpeg)
@@ -356,6 +370,7 @@ of NiloToonURP for your URP project, please send the following info to nilotoon@
 - [How It's Done - Ironmouse & Mori Calliope](https://youtu.be/P1_2JehaKOw?si=jNKFfhcZUi5QRq18)
 - [Abracadabra - Ironmouse](https://www.youtube.com/watch?v=DGyphTQHV7w)
 - [Alicia/Lumiere Clair Obscur: Expedition 33 - Ironmouse, Nerissa Ravencroft, & Elizabeth Bloodflame](https://youtu.be/9FtpzAqIPIU?si=F2OIcA0XhQ90nnsn)
+- [Daidaidaidaidaikirai - Hatsune Miku VS Kasane Teto (Cover)](https://youtu.be/gFmrDB-99fU?si=E4zEovrauQCo8G5G)
 
 ### Neo-Porte（ネオポルテ）- 天帝フォルテ / Tentei Forte (https://www.youtube.com/@tenteiforte4631)
 ![screenshot](https://i.imgur.com/AJRw1g8.jpg)
